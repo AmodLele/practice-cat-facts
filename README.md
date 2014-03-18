@@ -3,5 +3,5 @@ __These will be facts about a lonely cat.__
 Ha ha, fooled you. There's no such thing as a lonely cat.
 They like being alone.
 
-Lonely or not, cats are godless killing machines.
+Lonely or not, cats are machines that kill dragons.
 
